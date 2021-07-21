@@ -1,0 +1,1 @@
+# detail1.github.io
